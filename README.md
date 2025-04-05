@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Wed development ,app development**
 
-- 📫 How to reach me **rahulbajad@gmail.com**
+- 📫 How to reach me **rahulbajad12345@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
